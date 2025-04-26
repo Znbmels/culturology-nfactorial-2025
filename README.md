@@ -1,0 +1,1 @@
+# culturology-nfactorial-2025
